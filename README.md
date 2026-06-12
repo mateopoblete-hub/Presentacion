@@ -1,5 +1,5 @@
 # 💫 About Me:
-Actualmente estoy estudiando la tecnicatura en programacion de manera virtual de la U.T.N
+Actualmente estoy estudiando la tecnicatura en programacion de manera virtual de la Universidad Tecnologica Nacional (U.T.N)
 
 
 ## 🌐 Socials:
